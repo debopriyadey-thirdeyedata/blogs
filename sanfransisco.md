@@ -1,3 +1,5 @@
+![image](https://github.com/debopriyadey-thirdeyedata/blogs/assets/152641366/d7ec9bbd-3425-4a3a-9c97-94651df43122)
+
 # Exploring San Francisco
 
 San Francisco, located in Northern California, is known for its iconic landmarks, diverse culture, and vibrant atmosphere. Here's a glimpse into what this beautiful city has to offer:
